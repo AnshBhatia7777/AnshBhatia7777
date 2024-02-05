@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AnshBhatia7777
-- 👀 I’m interested in learning and adpatig new skills
+- 👀 I’m interested in learning and adpating new skills
 - 📫 How to reach me [@Ansh Bhatia](https://in.linkedin.com/in/ansh-bhatia)
 - 😄 Pronouns: He//Him
 - ⚡ Fun fact: Eat..Sleep..Code..Repeat
